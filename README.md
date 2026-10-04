@@ -23,7 +23,7 @@
 
 **Important:**
 
-This is **not** the original Dolphy. Please **don't report bugs** in this build to the original developers.
+This is **not** the original Dolphy. Please **don't report bugs** in this build to the original developers. (u can send it me: t.me/BOEHKOMAT_7)
 
 unvoiddd cool dude
 
